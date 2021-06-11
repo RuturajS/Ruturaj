@@ -1,2 +1,0 @@
-# Ruturaj
-My photo
